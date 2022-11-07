@@ -1,0 +1,10 @@
+-🎭oii me chamo @Ryanulmer
+-jogador✋😝🤚
+-gosto de jogar futebol
+-estudo no colégio estadual Eugênio.garmatz
+-Joaozin.matador.de.calango🦎
+-10. e.faixa
+-sou.filho.da.minha.mae.
+-🙏corrida.hj. vitória.amanha.
+-🍻🍻
+-cunhado.do.homem😛😛
